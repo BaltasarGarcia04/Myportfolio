@@ -1,0 +1,1 @@
+Estudiante de Ingeniería en Computación con interés en desarrollo de software, infraestructura IT y resolución de problemas mediante tecnología. Actualmente enfocado en fortalecer habilidades prácticas a través de proyectos reales y académicos.
